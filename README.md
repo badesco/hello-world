@@ -1,1 +1,2 @@
-# hello-world
+# hello-world...
+i am an infoprenuer and internet marketer of 12 years of experience. i like browse and researching online. very gentle and caring.
